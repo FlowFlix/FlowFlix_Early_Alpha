@@ -9,5 +9,3 @@ Jeśli uważasz, że Twoje materiały zostały wykorzystane w naszej aplikacji b
 
 Aby przyspieszyć proces, prosimy o przesłanie zgłoszenia na adres: treekillerp@gmail.com (tymczasowo)
 Dziękujemy za współpracę.
-
-@everyone
